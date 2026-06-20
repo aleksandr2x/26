@@ -1,1 +1,1 @@
-# # August 1-31
+# August 1-31
